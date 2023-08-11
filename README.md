@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @jonathandwayne22
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+jonathandwayne22/jonathandwayne22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+
+We Are Direct Factory Of Chemical Raw Material To Meet All Your Research Needs, We Have Advantage In Quality And Price. We Also Have More Products,If You Are Interest, Welcome To Connect With Me，We Have Stock In Germany Netherland And Usa 2fdck,Eu,Adbb,Apvp,3cmc/4mmc,5f,6f,Jwh-018,4-Mar 4-Max, 4-Metmp,U-47700,5c,
+Protonitazene, Metonitazene, Etazene, Bromazolam, Flubrotizolam, Flubromazepam, Deschloroetizolam, Rilmazafone,Nitrazolam, Paracetamol, Propanoyl Chloride, Phenacetin, Benzocaine, Lidocaine, Xylazine Hcl
+--->
